@@ -1,2 +1,1 @@
-# keytrickhub
-key
+uqinshuwhanshydwin1234
